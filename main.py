@@ -1,5 +1,4 @@
 # Hello world!
-# I don't care if Monday's blue
-# Tuesday's grey and Wednesday too
-# Thursday I don't care about you
+# Everybody salsa
+# Everybody salsa
 # It's Friday, I'm in love
