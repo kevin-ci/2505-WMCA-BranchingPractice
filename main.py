@@ -1,4 +1,5 @@
 # Hello world!
 # Has it come to this
 # original pirate material
-# you're listening to the streets, lock down your ariel
+# Thursday I don't care about you
+# It's Friday, I'm in love
