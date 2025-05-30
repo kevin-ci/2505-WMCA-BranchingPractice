@@ -1,5 +1,5 @@
 # Hello world!
-# I don't care if Monday's blue
-# Tuesday's grey and Wednesday too
+#Oh my love we live and die
+#in existential, fearful times
 # Thursday I don't care about you
 # It's Friday, I'm in love
