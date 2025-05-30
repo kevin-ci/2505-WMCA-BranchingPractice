@@ -1,4 +1,5 @@
 # Hello world!
 # Late in the evening
 # I do what I got to
-# I already told you
+# Thursday I don't care about you
+# It's Friday, I'm in love
